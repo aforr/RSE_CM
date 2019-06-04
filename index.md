@@ -18,3 +18,11 @@ Andes
 Urals
 Rockies
 Appalachians
+
+Mountains under the sea
+=======================
+
+Lōʻihi Seamount
+Axial Seamount
+Bear Seamount
+Bowie seamount
