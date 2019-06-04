@@ -7,3 +7,12 @@ Mountains in Europe
 ===================
 
 Alps, Pyrenees, ...
+
+
+
+Mountains elsewhere
+===================
+
+Himalayas
+Andes
+Urals
