@@ -6,7 +6,7 @@ The UK doesn't have real mountains
 Mountains in Europe
 ===================
 
-Alps, Pyrenees, Vosges, Massif Central...
+Alps, Pyrenees, Massif Central...
 
 
 
