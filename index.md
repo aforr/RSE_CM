@@ -19,3 +19,5 @@ Mountains elsewhere
 Himalayas
 Andes
 Urals
+Rockies
+Appalachians
